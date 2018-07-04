@@ -1,0 +1,1 @@
+# Idioma-anctual-del-dispositivo-Android
